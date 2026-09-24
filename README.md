@@ -12,4 +12,4 @@
       <p> i usually dont aproach first and i may be awkward but im a yapper once i warm up to ya!</p>
     </details></p>
   </p> <br><br><br><a href="https://sweet-leafs.straw.page/">sp</a> 　     　     ✦ 　     　     <a href="https://blooming-spring.atabook.org/">ata</a>  　     　     ✦ 　     　     <a href=https://pronouns.cc/@tree>prns</a>  　     　   <img src="https://files.catbox.moe/kxwcyv.gif"> 
-</div>
+</div> 
